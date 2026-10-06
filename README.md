@@ -1,1 +1,2 @@
 Alex Kornreich
+kornreia@oregonstate.edu
